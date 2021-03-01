@@ -1,4 +1,10 @@
-最新地址：http://www.douyinno.com 备用地址：http://www.douyinno1.com
+最新地址：https://www.dy30.xyz 
+
+永久地址：http://www.douyinno.com 
+
+失效地址1：http://www.douyinno1.com
+
+失效地址2：http://www.douyinno2.com
 
 当你发现抖阴导航地址不能正常访问时，打开此发布页即可获取本站最新可用地址
 
